@@ -36,7 +36,7 @@ Highlight something unique about this project.
 
 Feel free to reach out if you're interested in collaborating or just want to chat!  
 - Email: [younessansarey@gmail.com](mailto:your.younessansarey@gmail.com)  
-- LinkedIn: [www.linkedin.com/in/youness-ansarey](www.linkedin.com/in/youness-ansarey)  
+- LinkedIn: [www.linkedin.com/in/youness-ansarey](https://www.linkedin.com/in/youness-ansarey)  
 
 ## 🌐 More About Me  
 
